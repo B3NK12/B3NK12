@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @B3NK12
+- 👀 I’m interested in technology, bowling, and video games.
+- 🌱 I’m currently learning computer science and interdisciplinary math at Indiana Wesleyan University
+- 💞️ I’m looking to collaborate on fun projects
+- 📫 How to reach me: kuehnerben12@gmail.com
